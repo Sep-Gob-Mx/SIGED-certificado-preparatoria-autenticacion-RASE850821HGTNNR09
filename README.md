@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RASE850821HGTNNR09
+RASE850821HGTNNR09
